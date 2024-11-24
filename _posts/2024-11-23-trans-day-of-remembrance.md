@@ -36,6 +36,8 @@ The battle-lines, the territories claimed by those who say, "we assert our domin
 
 Maps are frequently wrong. Ask anyone affected by post-colonial cartography, where those who speak Authority lay down a line and proclaim that this side is this side and that side is that; who then sit back and accolade themselves on jobs well-done and finished.
 
+Borders aren’t real. The pen on the map does not draw a line on the land.
+
 You cannot define us away; you cannot prevent us from screwing up your categories.
 
 Categories are a map, and it's a poor map indeed that contains only one road with two sides.
