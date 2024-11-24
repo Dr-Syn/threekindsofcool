@@ -10,8 +10,6 @@ tags:
 
 Borges wrote the standard treatment of the concept, "On Exactitude in Science" 
 
-![[Pasted image 20241123160429.png]]
-
 But some of us live this as our everyday reality.
 
 The map is never the territory.
