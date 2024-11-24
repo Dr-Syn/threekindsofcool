@@ -8,7 +8,7 @@ tags:
 
 "The map is not the territory" is a valuable concept in engineering and something which trans people know from the core of our being.
 
-Borges wrote the standard treatment of the concept, which you can teach easily.
+Borges wrote the standard treatment of the concept, "On Exactitude in Science" 
 
 ![[Pasted image 20241123160429.png]]
 
