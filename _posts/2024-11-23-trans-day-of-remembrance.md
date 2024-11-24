@@ -66,7 +66,3 @@ Well, we'll find out, won't we?
 
 Together.
 
-
-
-
-Borders aren't real. The pen on the map does not draw a line on the land.
