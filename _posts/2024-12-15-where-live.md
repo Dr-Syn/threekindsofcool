@@ -3,7 +3,7 @@ title: where live?
 date: 2024-12-15
 tags:
   - poems
-  - thoughts
+  - sonnets
 ---
 
 we welcome those who work, the good proclaim,<br>
