@@ -14,11 +14,9 @@ winter holds again, sere, wind-wrecked; the fallen leaves<br>
 my manuscript has come unbound; how my mind reels!<br>
 memory holds me in contempt, the fallen leaves<br>
 <br>
-
 there is no sin nor sinner when her eye has seen<br>
 souls shed them before her, exempt, the fallen leaves<br>
 <br>
-
 the devil on my shoulder takes his leave of me<br>
 there's nothing left in here to tempt; the fallen leaves<br>
 <br>
