@@ -15,7 +15,7 @@ tho half-consumed, redoubled joy when shared alike<br>
 beloved, eyes of amber seige my fertile mind -<br>
 my heart's tilled within your gaze, sword and share alike<br>
 <br>
-alone with midnight oil I strive to master bayts,<br>
+master I must with midnight oil this thirst for bayts,<br>
 from others' verse, I ghazal deep, and sher alike <br>
 <br>
 "a loaf of bread, a jug of wine, and thou" besides,<br>
